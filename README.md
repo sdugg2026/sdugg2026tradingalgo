@@ -1,0 +1,1 @@
+# sdugg2026tradingalgo
